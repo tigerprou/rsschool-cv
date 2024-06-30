@@ -1,1 +1,1 @@
-# rsschool-cv
+https://tigerprou.github.io/rsschool-cv/cv 
