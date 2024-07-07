@@ -1,1 +1,1 @@
-https://tigerprou.github.io/rsschool-cv/cv 
+https://tigerprou.github.io/rsschool-cv/
